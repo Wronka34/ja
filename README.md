@@ -3,8 +3,6 @@
 co tam
 
 tak jest
-oke
-
 
 
 
